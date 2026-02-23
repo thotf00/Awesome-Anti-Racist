@@ -4,7 +4,7 @@
 
 **Co-Host**: Chenjerai Kumanyika "You're not asking me to speak for all people of color, are you?"
 
-#### Focus: Structural racism: institutionalized patterns of exploitation and oppression.
+#### Focus: Structural Racism - institutionalized patterns of exploitation and oppression.
 
 ### I. Core Premise and Intent of the "Seeing White" Series
 
