@@ -1,4 +1,4 @@
-# SceneOnRadio Season 2 Seeing White Podcast Series - Episode 1 : Seeing Whiteness
+# SceneOnRadio Podcast - Season 2: Seeing White - Episode 1: Seeing Whiteness
 
 Host: John Biewen
 Co-Host: Chenjerai Kumanyika "You're not asking me to speak for all people of color, are you?"
