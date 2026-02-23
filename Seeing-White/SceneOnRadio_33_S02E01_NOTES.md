@@ -1,5 +1,8 @@
 # SceneOnRadio Season 2 Seeing White Podcast Series - Episode 1 : Seeing Whiteness
 
+Host: John Biewen
+Co-Host: Chenjerai Kumanyika "You're not asking me to speak for all people of color, are you?"
+
 #### Focus: Structural racism: institutionalized patterns of exploitation and oppression.
 
 ### I. Core Premise and Intent of the "Seeing White" Series
